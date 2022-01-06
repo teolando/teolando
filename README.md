@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @teolando
+- 👀 I’m seeking knowledge
+- 🌱 I’m currently learning code web pages
+- 📫 How to reach me teolando.storm@gmail.com
