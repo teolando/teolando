@@ -1,3 +1,1 @@
-- 👋 What's up, I’m @teolando.
-- 🌱 I’m currently learning to code.
-- 📫 How to reach me, teolando.docs@gmail.com, don't send me message, just if you want a madman in your company.
+I'm strange like everyone, but i know that, this make me aware about me and the things that i can control, like a humble man one time said: "Accept what you can control and the forget the rest"
